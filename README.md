@@ -1,1 +1,1 @@
-![Описание](https://i.pinimg.com/736x/a5/bc/b3/a5bcb3d97002b9d6b39cf06627e5e4ec.jpg)
+![Описание](https://www.pngfind.com/pngs/m/601-6019877_sad-depressed-depressedgirl-girl-girlanime-tumblr-suicidal-anime.png)
